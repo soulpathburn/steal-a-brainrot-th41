@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot exclusive Script offers the most advanced steal a brainrot Script, with auto-upgrade and god mode. Perfect for dominating any match.
 
 
 
